@@ -49,7 +49,6 @@ My recent coursework and projects focus on:
 
 - Email: [junsung.rhee@gmail.com](mailto:junsung.rhee@gmail.com)  
 - LinkedIn: [linkedin.com/in/junsungrhee](https://www.linkedin.com/in/junsungrhee)  
-- Portfolio: [yeonbi.com](https://yeonbi.com)
 
 ---
 
